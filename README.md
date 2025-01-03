@@ -127,4 +127,3 @@ I’m open to new opportunities, collaborations, and discussions about cybersecu
 - **Twitter**: [My Twitter](https://twitter.com/your-profile)
 - **Email**: umeshudayakumar320@gmail.com
 
-Feel free to contact me for professional inquiries or cybersecurity advice!
